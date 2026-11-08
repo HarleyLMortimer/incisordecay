@@ -1,6 +1,6 @@
 # **Basic Information**
 
-*My name is Seis! I'm 20, and I use He/Him pronouns.*
+*My name is Harley! I'm 20, and I use He/Him pronouns.*
 *I'm a fairly shy person, so please be aware of that. I may be distant, or sometimes silent. __Don't take it to heart,__ I'm just not good with people!*
 
 
